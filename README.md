@@ -1,2 +1,0 @@
-# Talentotech
-subir trabajos 
